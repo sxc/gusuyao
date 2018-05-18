@@ -33,6 +33,17 @@
 - 《李刚评话》
 也可以下载 看苏州 App 在手机观看 iOS App Store 上的看苏州 [https://itunes.apple.com/cn/app/看苏州/id975102733](https://itunes.apple.com/cn/app/看苏州/id975102733)
 
+### 听苏州评弹
+不要用学语言的目的听评弹、昆曲，用听戏的心态去听，因为对于评弹，即使会讲苏州的人，有时也不能完全听懂。感兴趣是第一位的。
+- 苏州评弹博物馆 苏州平江历史保护街区中张家巷14号 [http://www.suzhoupingtan.com.cn](http://www.suzhoupingtan.com.cn)
+- 和平里书场
+- 吴苑深处书场 通常演出时间是下午13:00-15:00
+- 光裕书场 
+
+### 看昆曲
+- 苏州昆曲博物馆 苏州平江历史保护街区中张家巷14号 通常演出时间是周日下午14:00 现场购票，票价50，客满停止售票。  [网站](http://www.suzhoupingtan.com.cn/IndexKQ.aspx)
+
+
 ## 方法  Method
 使用多种材料，在可理解范围内，尽可能多输入，多听。
 ### 听
